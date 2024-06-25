@@ -9,4 +9,4 @@ Meu nome é Gabrieli e eu tenho 16 anos
 - Discord: plandrinha
 - Instagram: @plandrinha_gabi
 
-![](https://media1.tenor.com/m/8Oz2K9CaJJ0AAAAd/euphoria-bts.gif)
+![](https://media1.tenor.com/m/h8aKqWcQj_kAAAAd/euphoria-bts.gif)
