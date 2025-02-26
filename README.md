@@ -1,6 +1,6 @@
 ### Salve fml! 🤙
 
-Meu nome é Gabrieli e eu tenho 16 anos
+Meu nome é Gabrieli e eu tenho 17 anos
 - Eu estudo na [Alura](https://www.alura.com.br)
 - Estou aprendendo JavaScript
 - Vou organizar e compartilhar os meus projetos aqui!
